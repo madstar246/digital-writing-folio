@@ -9,6 +9,7 @@ I really enjoyed going through *First draft of the Revolution.* I was reminded o
 I am expecting to learn new skills and have opportunities to experiment with e-literature. I'm hoping that by the end of the semester my coding skills will have improved. 😺👍
 
 **12/3/26 - AI & Ethics**
+
 I am opposed to the idea of AI usage. 
 
 I want to learn. I want to create. 
