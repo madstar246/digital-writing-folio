@@ -14,6 +14,8 @@ I am opposed to the idea of AI usage.
 
 I want to learn. I want to create. 
 I don't want a machine to do the work for me. 
-In my opinion, AI should have no place in creative fields. 
+In my opinion, AI should have no place in creative fields.
 
-*Ethical use of AI*... Is there even such a thing? When AI is destroying the environment? Taking over creative industries? It feels awfully dystopian. I don't know. It just doesn't sit right with me.
+*Ethical use of AI*... Is there even such a thing? I don't know. It just doesn't sit right with me.
+
+Plus, I've always loved using em-dashes, but now people associate them with ChatGPT. </3
