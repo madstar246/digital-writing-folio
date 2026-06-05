@@ -1,5 +1,7 @@
 **What makes a work a piece of e-literature?**
 
+E-literature combines key elements of digital work and traditional literature. It can be used as a tool for exploring storytelling outside of the standard form.
+
 **Of the key examples above, which did you like most and why?**
 
 I really enjoyed going through *First draft of the Revolution.* I was reminded of reading choose-your-own-adventure books as a kid, but also of playing video games. The interactive storytelling features were interesting to play around with.
@@ -24,3 +26,8 @@ I can tend to have trouble remembering things. Keeping written records helps wit
 I like to keep physical records in notebooks. Something about putting pen to paper makes everything feel more concise and real, even if I do most of my actual writing on my laptop. 
 There's something very satisfying on looking back on old drafts and notes and seeing evidence of the process. Like pieces of a puzzle falling into place.
 
+**Progress Audit**
+
+Over the break, I read a collection of short horror stories. One of them was about missing children who suddenly started appearing again, looking as if no time had passed at all, even though some of them had been missing for years. I want to draw inspiration from this. The main character of my e-lit will be a 14 year old girl who, after an argument with her parents, goes out on an evening walk to calm down. She walks for half an hour then returns home, only to find that apparently an entire month has passed.
+
+Interactivity: Exploring a phone. There's a months worth of things to look through. Messages and missed calls from her family begging her to come home, messages from friends asking where she is, is she okay, what's going on, please come back. The calendar has jumped forward a whole month. The browser shows articles reporting on her as a missing person. You can respond to a friend and tell them that you're confused, you were only gone for like half an hour, you don't understand how it's been a whole month. Could post on an online forum to see if anyone else has a similar experience, mostly get comments saying that you probably just forgot, hit your head, sometimes trauma can make the brain block out memories. Maybe get a response from one person who's gone through the same thing. Reach out and connect with them. Notes app - venting about the situation. Social media - comments under previous posts hoping that you're okay and imploring you to come home.
